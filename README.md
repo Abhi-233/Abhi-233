@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Abhishek V
-- 👀 I’m interested in learing new technologies
+- 👀 I’m interested in learning new technologies
 - 🌱 I’m currently studying in New Horizon College of Engineering
 - 📫 You can reach me(my email:abhisumit127@gmail.com)
 
